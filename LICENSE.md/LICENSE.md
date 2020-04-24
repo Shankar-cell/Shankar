@@ -1,0 +1,1 @@
+Shankar Anindo Obadha is the only daughter of Geoffrey Obadha From kenya ,Kakamega county Butere district Shiatsala Division.She was born on 4th May 2018 At Muhoroni sub-county Hospital Kisumu County when his father was a banker by then.
